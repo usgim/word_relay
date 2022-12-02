@@ -18,4 +18,4 @@
 !["오늘발표된듯함"](https://w.namu.la/s/517e23973883f554f13ec4fe494a8ceb3e4f82c6e2ef0988f5c7c18bcd3b89133f3901010c8ff1f016a54d4020dc045aa6e4bb7abbfd919c8ec48365369291ec09d1efda5eabd131fd4118cf4e991dd1ebc84171bced745051f37f8021e6aa7508b51005ce08ddbb7dc5017e52509a50)
 
 니뽄!!!!
-!["월드컵 우승 가즈아"](https://assets.goal.com/v3/assets/bltcc7a7ffd2fbf71f5/blt209f4ee92daba11e/63891f312445ee48655b7fb6/GettyImages-1446086732.jpg)
+!["월드컵 우승 가즈아"](https://assets.goal.com/v3/assets/bltcc7a7ffd2fbf71f5/blt209f4ee92daba11e/63891f312445ee48655b7fb6/GettyImages-1446086732.jpg?quality=80&format=pjpg&auto=webp&width=1000)
