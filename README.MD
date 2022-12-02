@@ -18,4 +18,4 @@
 !["오늘발표된듯함"](https://w.namu.la/s/517e23973883f554f13ec4fe494a8ceb3e4f82c6e2ef0988f5c7c18bcd3b89133f3901010c8ff1f016a54d4020dc045aa6e4bb7abbfd919c8ec48365369291ec09d1efda5eabd131fd4118cf4e991dd1ebc84171bced745051f37f8021e6aa7508b51005ce08ddbb7dc5017e52509a50)
 
 니뽄!!!!
-!["월드컵 우승 가즈아"](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.joongang.co.kr%2Farticle%2F25122515&psig=AOvVaw3VykeWigFm533_w--3KwO5&ust=1670043321181000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCJjAvqmS2vsCFQAAAAAdAAAAABAE)
+!["월드컵 우승 가즈아"](https://pds.joongang.co.kr/news/component/htmlphoto_mmdata/202212/02/11e71a50-1209-4025-b639-32dc419cd120.jpg)
